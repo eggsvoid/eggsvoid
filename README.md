@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @eggsvoid
+- 👀 I’m interested in lerning hacks 
+- 🌱 I’m currently learning how to make cliants
+- 💞️ I’m looking to collaborate on mods
+- 📫 How to reach me eggsvoid@gmail.com
+- 
